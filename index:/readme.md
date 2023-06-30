@@ -1,2 +1,3 @@
 - [How To Create VIRAL Talking AI Generated Videos to Get MILLIONS of views! ($100/Day with DupDub)](https://youtu.be/A9wAmUePYto)
 - [Make Money From YouTube Shorts Without Making Videos 2023 (No Camera Required)](https://youtu.be/Og4I8VbBA98)
+- [I Tried YouTube Faceless Cashcow Channel Only using AI](https://youtu.be/7G34lERM4xo)
